@@ -1,1 +1,0 @@
-# samuel-mota.github.io
